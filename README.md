@@ -9,6 +9,3 @@
 [![Website Button](https://cdn.phototourl.com/member/2026-09-30-a0915ec3-a77b-482b-9f17-e48549cdfd22.png)](https://rentry.co/aertis)
 
 
-<img width="248" height="248" alt="1000165325" src="https://github.com/user-attachments/assets/ccc2d63d-c127-459d-b693-ce1e7683436c" />
-
-whose ugly baby is this #killmike #executemike #getmike #begonemike
